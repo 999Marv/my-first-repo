@@ -1,4 +1,5 @@
 My name is Marvin Siri
 I am 21 Years old
-I like basketball and football (real football, not that hand egg sport)
-I like music
+I like basketball
+I like football (real football, not that hand egg sport)
+I like music rap specifically
